@@ -9,4 +9,4 @@ utilizo em aula a plataforma [alura](https:\\www.alura.com.br)
 ### você pode entrar em contato comigo pelo 
 bubna.nicoli@escola.pr.gov.br
 
-![https://media1.tenor.com/m/kz0S11QyA7kAAAAC/ian-somerhalder-cute.gif]
+![ https://media1.tenor.com/m/kz0S11QyA7kAAAAC/ian-somerhalder-cute.gif ]
